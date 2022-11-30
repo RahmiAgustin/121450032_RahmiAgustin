@@ -1,0 +1,1 @@
+# Exercise-9_STRUKTUR-DATA
